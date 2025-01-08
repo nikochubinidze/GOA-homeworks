@@ -1,0 +1,1 @@
+#stringis gadayvana integerze rom erti mxlolod cifrebs irebs erti mxolod brwyalebsi iwereba
